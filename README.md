@@ -1,4 +1,4 @@
- ### Bem vindo ao meu perfil 💜_heart
+ ### Bem vindo ao meu perfil 💜
  
 Meu nome e Kimberly Alves
 
